@@ -1,1 +1,2 @@
-# BudgetBuddyV1
+Çağrıhan GÜNAY
+Burcu İÇEN
